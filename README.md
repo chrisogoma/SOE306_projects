@@ -1,2 +1,5 @@
 # SOE306_projects
-Bebe
+Christine Ogoma Nwaorgu
+Chiagozie Melvin
+Precious Obinna
+Chibundu David
